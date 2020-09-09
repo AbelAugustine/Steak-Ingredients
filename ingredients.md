@@ -1,0 +1,1 @@
+Ingredients 1 (1-pound) ribeye steak, 1 to 1 1/2 inches thick, (or T-bone, filet mignon, or strip steak) 2 tablespoons canola or vegetable oil 1 tablespoon kosher salt Freshly ground black pepper
